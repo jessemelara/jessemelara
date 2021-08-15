@@ -1,8 +1,8 @@
 # Hi, I'm Jesse Melara!! ✌
-💼 I'm a Web Developer who's interested to help others with my knowledge. I'm passionate to create beautiful web pages that interact with users in a friendly way.
-Let's imagination to be!!
+💼 I'm a Web Developer who's interested to help others with my knowledge. I'll glad to help you launch your business idea on the internet effectively.
+Let's do it!!
 
-❤ I love programming and learning about it. My wish is to be a better programmer every day.
+❤ I love programming and learning about it to solve problems in my environment. My wish is to be a better programmer everyday to provide an accurate solution for others. 
 ***
 
 Contact Me: 
